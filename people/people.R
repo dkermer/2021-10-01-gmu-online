@@ -1,1 +1,1 @@
-Names of People
+Names of Attendees
