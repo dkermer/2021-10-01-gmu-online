@@ -1,1 +1,1 @@
-Names of Attendees
+Names of Learners
